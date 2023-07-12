@@ -11,5 +11,8 @@ I watched all the series of the show so it holds a nostalgic factor for me
 
 I love the art style that the cards get printed in 
 
+Exodia.PNG
+
+
 
 
