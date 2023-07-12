@@ -10,7 +10,7 @@ I watched all the series of the show so it holds a nostalgic factor for me
 
 I love the art style that the cards get printed in 
 
-I typically practice with online tools such as [Dueling-Nexus_Link](https://duelingnexus.com/login "Dueling Nexus")
+I typically practice with online tools such as [Dueling-Nexus](https://duelingnexus.com/login "Dueling Nexus")
 
 ![Exodia](Exodia.PNG)
 
