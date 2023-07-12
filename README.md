@@ -1,6 +1,6 @@
 # Carlo's Favorite Pass-Time
 
-Yu-Gi-Oh 
+## Yu-Gi-Oh 
 
 **It is a unique deck card game that I play almost religiously.**
 
